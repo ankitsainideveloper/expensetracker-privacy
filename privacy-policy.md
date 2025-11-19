@@ -39,4 +39,4 @@ We may update this privacy policy from time to time. Updates will be available o
 ## 7. Contact Us
 If you have questions, contact us at:
 
-**ankitt7@gmail.com**
+**ankitsainideveloper@gmail.com**
